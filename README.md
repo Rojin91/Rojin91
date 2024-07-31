@@ -1,4 +1,5 @@
 ## Hi there 👋
+## Myself Rojin Puri, an Electronics Engineer Undergrad (3rd Year) From Paschimanchal Campus, Pokhara
 ### 👯Currently Involved in Computer Network Projects With My College Mates
 
 ## 🌐 Socials:
